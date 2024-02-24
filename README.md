@@ -15,5 +15,7 @@ Dazi has been getting copied over & over again BY THE SAME PERSON read this call
 ![tumblr_b21e990cfbcc3b66489f88d7af558e24_becddbec_100](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/f7320ff1-3e26-43c1-aeb3-6d12de70f338)
 ![ms_paint_stamp__by_whoot_hoot_party_d168dyq-fullview](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/43894cb5-a2c2-4526-9768-2ea226084b8a)
 ![shark_teeth_stamp_by_bulletblend_da9lmaf-fullview](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/922be4d9-8dfb-4119-81af-a29a470c65c0)
-![Uploading d2ssg1y-afab1b14-f37d-4624-b275-75eeec254f42.gif…]()
+![d2ssg1y-afab1b14-f37d-4624-b275-75eeec254f42](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/ca9fbc3f-921c-4680-9877-f2fe7e66438d)
+![d4cufbb-f791195d-ce0d-460f-b641-388b805549cb](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/81dcb919-bc28-4b7e-92b9-75539c1d96be)
+
 
