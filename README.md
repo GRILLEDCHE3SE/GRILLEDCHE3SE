@@ -1,7 +1,6 @@
 Dazi has been getting copied over & over again BY THE SAME PERSON read this callout rentry https://rentry.co/copyingagain
 ![tumblr_0cbe8fa89be2a42d03e9484ed9979a2f_28dde51b_250](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/d64e079f-5de5-4357-9916-90a6b43a5c79)
 ![tumblr_5afcb032e518ac28133d0fa2b8ea5d37_d93435ca_250](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/82041898-a6ad-4c69-aef0-3cf2d082ace9)
-
 ![tumblr_6f2c6f3e003109876b5e83a3a2af77f1_38b787bf_1280](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/ebe87948-ef4c-4786-92b0-8716c2f49661)
 
 
