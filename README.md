@@ -1,5 +1,5 @@
 Dazi has been getting copied over & over again BY THE SAME PERSON read this callout rentry https://rentry.co/copyingagain
-![hoshino_ichika_school_girl_project_sekai_by_thegoogoo777_ddm3gz7-fullview](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/cd0462be-edaa-48a7-af14-4398bb044b4e)
+
 
 ![tumblr_48eddd33be41c7a74fb77f3fbce6704e_fb60e50a_100](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/c998cb74-6f84-4a44-8039-8ef28f94371a)
 ![tumblr_9245a15dad34f3b6bd5179908407ec73_ccf91077_100](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/443232fe-5788-4217-820d-0163c121d83a)
