@@ -10,4 +10,9 @@ Dazi has been getting copied over & over again BY THE SAME PERSON read this call
 ![weekender girl dubstep nightcore vaporwave bass-boosted remix must watch](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/8cc51906-3c97-40f8-ad80-9ac1e1398540)
 ![_game_over__by_redkuu-da81jk3](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/4ae52262-878d-408c-8430-67a5eaeac326)
 ![d](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/b43f3a7f-903e-4c8e-b982-77a3af2f6849)
+![tumblr_inline_pe6lvvEYdU1v11djx_1280](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/2f377545-efe6-4357-9a7d-20fd33569a66)
+![nekojiru_stamp_01_by_tapu_lele-daqtn5u](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/fc347e17-aaa8-4ad9-8732-9e792c96a186)
+![tumblr_b21e990cfbcc3b66489f88d7af558e24_becddbec_100](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/f7320ff1-3e26-43c1-aeb3-6d12de70f338)
+![ms_paint_stamp__by_whoot_hoot_party_d168dyq-fullview](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/43894cb5-a2c2-4526-9768-2ea226084b8a)
+![shark_teeth_stamp_by_bulletblend_da9lmaf-fullview](https://github.com/GRILLEDCHE3SE/GRILLEDCHE3SE/assets/151359580/922be4d9-8dfb-4119-81af-a29a470c65c0)
 
