@@ -1,14 +1,4 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=GRILLEDCHE3SE&color=blue)
-![image](https://github.com/user-attachments/assets/3e8647d6-e129-46dd-a16b-463023307e1d)
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ𝑬𝒍𝒊𝒂𝒔 𝒐𝒓 𝑨𝒏𝒋 !!ㅤ rentry in the making ☆
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![](https://komarev.com/ghpvc/?username=GRILLEDCHE3SE&color=FF8DA1)
 
-![e768f7540c0a05b1aaf09bb93f68c0ff_50_optimized](https://github.com/user-attachments/assets/c8853f36-8c07-4f50-a2af-fe9e13979e10)![b17f1bdae19ca507013640edb2a40cf6_2_40](https://github.com/user-attachments/assets/36d00a88-a746-4188-98a6-cf3033b87879)![7943_50_1_optimized](https://github.com/user-attachments/assets/db5bb1f3-5d4e-445c-adf8-0e3db5360b6c)
-
-
-
-
-
-
-
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![Screenshot_2025-03-14_221856_optimized](https://github.com/user-attachments/assets/28c5024f-7ab9-4257-87e8-bca42e82db16)
 
