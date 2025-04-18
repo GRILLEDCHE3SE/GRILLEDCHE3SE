@@ -8,4 +8,4 @@
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ![image](https://github.com/user-attachments/assets/2417483b-72d9-492e-a02d-61411caa933c)
 
 ㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤmost active on insta & disc !! :3 lmk and i'll add u 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤmost active on insta & disc !! :3 lmk and i'll add u 
